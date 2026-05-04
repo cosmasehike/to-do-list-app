@@ -1,1 +1,1 @@
-This is my Daily To-do-list activities
+This is my daily To-do-list activities
